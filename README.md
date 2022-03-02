@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @karimeenpollichath
-- 👀 I’m interested in ... fish. To be more specific- pearl spot cooked inside of a banana leaf
-- 🌱 I’m currently learning ... how to cook fish
-- 💞️ I’m looking to collaborate on ... eating fish
+- 👋 Hi, I’m @InfnteLights
+- 👀 I’m interested in penguins, although i know not much about them
+- 🌱 I’m currently learning quite a lot of stuff! Shhh... I prefer to keep it a secret for now
+- 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me ... this is just a test account. i will not be so active here until i get a hang of what i am doing, so putting nothing here for now.
 
 <!---
